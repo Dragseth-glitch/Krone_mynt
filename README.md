@@ -1,2 +1,2 @@
 # Krone_mynt
-velkommen til mitt nydelige spill
+Pizza Legends RPG
